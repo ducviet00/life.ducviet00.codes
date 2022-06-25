@@ -15,3 +15,20 @@ I'm a senior student at [Hanoi University of Science and Technology](https://en.
 This blog is where I update my life events, my thoughts and knowledges.
 
 Welcome!
+
+> The Brain is wider than the Sky  
+> For put them side by side  
+> The one the other will contain  
+> With ease and you beside
+>
+> The Brain is deeper than the sea  
+> For hold them Blue to Blue  
+> The one the other will absorb  
+> As sponges Buckets do
+>
+> The Brain is just the weight of God  
+> For Heft them Pound for Pound  
+> And they will differ if they do  
+> As Syllable from Sound
+
+— <cite>Emily Dickinson</cite>
